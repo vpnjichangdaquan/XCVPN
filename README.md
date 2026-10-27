@@ -10,7 +10,7 @@
 
 如果想查看当前套餐价格、注册账号或者了解最新服务信息，可以通过下面的入口访问。
 
-[星辰 VPN 官网注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰 VPN 官网注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -233,7 +233,7 @@
 
 如果你想进一步查看星辰 VPN 的套餐详情、节点说明和当前服务信息，可以通过以下入口进入注册页面。下单之前，请再次确认最新价格、流量限制、设备数量和相关服务条款。
 
-[星辰 VPN 官方注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+[星辰 VPN 官方注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
